@@ -1,0 +1,6 @@
+- 👋 Hi, I’m skopi
+- 👀 I’m currently working on minecraft mod 
+- 📫 How to reach me?
+- Here u can find my Ds and Ig 
+-  ----> https://e-z.bio/skopi <----
+- feel free to add me and ask me anything
